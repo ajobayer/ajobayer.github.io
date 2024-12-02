@@ -1,2 +1,0 @@
-# ajobayer.github.io
-Portfolio
